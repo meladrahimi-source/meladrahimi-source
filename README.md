@@ -1,5 +1,5 @@
 
-Computer Application | Web &amp; Software Development Enthusiast
+
 
 
 # Hi, I'm Melad Rahimi! 👋
